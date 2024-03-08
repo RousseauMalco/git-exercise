@@ -1,4 +1,4 @@
-# The Chapter
+# Charles' Final Dinner
 
 Despite this, you was determined to make the most of my time here. you had always been a fan of trying new and exotic foods, so you made it my mission to sample as much of the local cuisine as possible. From street food vendors to high-end restaurants, you tried it all. Some dishes were a delight to my taste buds, while others left me questioning my life choices. But that was all part of the adventure, right?
 One particularly memorable experience was when you decided to try a traditional dish that was described as a delicacy in this country. The waiter brought out a small plate of what looked like fried insects, and you couldn't help but feel a sense of dread wash over me. With a deep breath, you picked up a crunchy critter and popped it into my mouth. To my surprise, it wasn't half bad. In fact, it was quite delicious. Who would have thought that bugs could be so tasty?

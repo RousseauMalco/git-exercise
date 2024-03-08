@@ -1,1 +1,4 @@
 # Chapter 1
+
+As I stepped off the plane in a foreign land, I couldn't help but feel a rush of excitement and trepidation. I had always dreamed of traveling to this country, but now that I was actually here, I couldn't help but feel a little overwhelmed. The sights, the sounds, the smells - everything was so different from what I was used to.
+I had decided to embark on this journey alone, as I wanted to immerse myself fully in the culture and experience everything this country had to offer. As I made my way through the bustling streets of the city, I couldn't help but feel like a fish out of water. The language barrier was one of the biggest challenges I faced, as my attempts at basic phrases were often met with confused looks and polite smiles.

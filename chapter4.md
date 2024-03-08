@@ -1,4 +1,4 @@
-# Chapter 8
+# Chapter 8: Language Barrier Reef
 
 As my time in this country came to an end, you couldn't help but feel a sense of bittersweet nostalgia. you had experienced so much in such a short amount of time, and you knew that you would never forget the memories you had made here. From trying strange foods to getting lost in translation, every moment had been a lesson in embracing the unknown and finding humor in the unexpected.
 As you boarded the plane back home, you couldn't help but smile at the thought of the next adventure waiting for me. Who knows where I'll end up next, but one thing's for sure - I'll always be ready for whatever comes my way, armed with a sense of humor and a spirit of adventure.
